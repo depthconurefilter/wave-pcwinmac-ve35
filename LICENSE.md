@@ -1,4 +1,4 @@
-# 
+# Automático Wave fluxo de trabalho para Mac OS | Turbo Wave fluxo de trabalho para PC Windows. Com faturamento recorrente e redação — otimizado para máximo desempenho em cada plataforma.
 
 
 
